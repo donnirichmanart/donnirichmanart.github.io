@@ -1,2 +1,2 @@
 # Donni Richman
-[View Work](https://donnirichman.com/donni-richman-art)
+[View Work](https://donnirichman.com/donni-richman-art.pdf)
